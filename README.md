@@ -1,1 +1,1 @@
-# Yamemo Privac Policy
+# Yamemo Privacy Policy
